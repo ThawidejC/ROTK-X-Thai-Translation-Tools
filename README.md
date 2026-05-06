@@ -2,7 +2,7 @@
 
 > **Romance of the Three Kingdoms X — โปรเจกต์แปลภาษาไทย โดย ThawidejC**
 
-![screenshot](https://user-images.githubusercontent.com/12345678/xxxxx.png)
+![screenshot](https://user-images.githubusercontent.com/Screenshot%202026-05-05%20221611.png)
 
 ---
 
